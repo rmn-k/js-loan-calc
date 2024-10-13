@@ -1,1 +1,1 @@
-![swappy-20241013_110027](https://github.com/user-attachments/assets/55bcccaf-9162-4841-8afa-f36dd9a71338)
+![swappy-20241013_154529](https://github.com/user-attachments/assets/255b3c45-1fdf-49b0-8db5-07e1221476d0)
